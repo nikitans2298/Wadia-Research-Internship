@@ -5,9 +5,9 @@
 > Duration: June – August 2020  
 >  
 > **Supervisors**:  
-> - Dr. Sushil Kumar – Wadia Institute of Himalayan Geology (Research Mentor)  
-> - Dr. Uday Bhan – University of Petroleum and Energy Studies (Academic Coordinator)
-> - ---
+> - Dr. Sushil Kumar – Head Geophysics, Wadia Institute of Himalayan Geology Dehradun, Uttarakhand, India- 248001 (Research Mentor)  
+> - Dr. Uday Bhan – Department of Petroleum Engineering and Earth Science, School of Engineering, UPES, Dehradun, Uttarakhand, India-248007 (Academic Coordinator)
+---
 
 ## 📘 Overview
 
